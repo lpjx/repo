@@ -2,4 +2,4 @@ Git is a distributed version control system.
 
 I AM wangjinghe.
 
-I am ¿Ó≈ÊΩ›
+I am ¿Ó≈ÊΩ›°£
